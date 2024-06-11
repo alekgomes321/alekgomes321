@@ -9,7 +9,7 @@ Meu nome é Alessandro Gomes
 ### Você pode entrar em contato comigo 📫
 00001092382471SP@al.educacao.sp.gov.br
 
-### @alekgomes321
+### @alee.silvag
 
 
 ![](https://media1.tenor.com/images/21f9326a1af5988929aed29fa6d607a7/tenor.gif?itemid=13766828)
