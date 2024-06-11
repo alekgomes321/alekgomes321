@@ -10,3 +10,6 @@ Meu nome é Alessandro Gomes
 00001092382471SP@al.educacao.sp.gov.br
 
 ### @alekgomes321
+
+
+![]() https://media1.tenor.com/images/21f9326a1af5988929aed29fa6d607a7/tenor.gif?itemid=13766828
