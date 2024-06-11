@@ -1,6 +1,7 @@
 ### Boas vindas ao meu perfil 💙💙
 
-Meu nome é ### Alessandro Gomes
+Meu nome é 
+### Alessandro Gomes
 
 -Estou estudando na Alura.
 
